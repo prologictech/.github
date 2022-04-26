@@ -8,5 +8,7 @@ Our distinguished clientele across the globe consists of-
 4. ex Editor-in-chief DC Comics
 5. Shark Tank US Winner 
 
-Clients don’t choose us because we have done similar work in the past. They choose us because of our capability to create new solutions that can help grow their business. For more details on what we do and how we do, please visit our website- 
+Clients don’t choose us because we have done similar work in the past. They choose us because of our capability to create new solutions that can help grow their business. 
+
+For more details on what we do and how we do, please visit our website- 
 [https://www.prologic-technologies.com/](https://www.prologic-technologies.com/)
